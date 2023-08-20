@@ -24,5 +24,3 @@
 
 
 
-
-<a href="https://ibb.co/ZhSd6xz"><img src="https://i.ibb.co/8jbMD9g/img2.png" alt="img2" border="0"></a>
